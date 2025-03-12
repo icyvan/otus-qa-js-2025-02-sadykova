@@ -1,1 +1,0 @@
-# otus-qa-js-2025-02-sadykova
